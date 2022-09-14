@@ -6,3 +6,4 @@ Design Electronic and Web resourses
 Hello I'm Roman
 Directed by Ales
 wassap from turkey eee boy ps'ot jekycha'
+I love Yuriy. LAngeL106
