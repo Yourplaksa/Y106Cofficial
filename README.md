@@ -9,3 +9,4 @@ wassap from turkey eee boy ps'ot jekycha'
 I love Yuriy. LAngeL106
 Hello Kitty
 Gangsta
+Ya ne love Yuriy
